@@ -12,5 +12,5 @@ The software has been running for about 6 years and continues to find lost walle
 
 Earn money from crypto without worrying. 💎
 
-Join our Telegram channel for more information. 👇👇
+Join our Telegram channel for more information. 👉👉
 https://t.me/cryptowalletcrackersoftware
